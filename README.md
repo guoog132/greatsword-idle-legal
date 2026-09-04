@@ -1,0 +1,1 @@
+# greatsword-idle-legal
